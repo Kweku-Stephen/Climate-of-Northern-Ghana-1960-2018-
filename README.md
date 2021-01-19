@@ -1,0 +1,1 @@
+# Climate-of-Northern-Ghana-1960-2018-
